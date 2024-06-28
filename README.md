@@ -1,1 +1,0 @@
-# otono1-labap-2024gexp3
